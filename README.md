@@ -1,2 +1,2 @@
 # Junne182.github.io
-[CLICK HERE](http://Junne182.github.io) to see my github page
+[CLICK HERE](https://Junne182.github.io) to see my github page
